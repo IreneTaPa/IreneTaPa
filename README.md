@@ -10,4 +10,5 @@
 - 📫 How to reach me italavero@hotmail.com
 
 Connect with me via LinkedIn 
-linkedin.com/in/irene-talavero-palomino/
+https://www.linkedin.com/in/irene-talavero-palomino/
+
